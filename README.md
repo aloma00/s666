@@ -1,1 +1,21 @@
 # s666
+http://www.33yynn.com
+http://www.3355lu.com
+http://www.3218888.cc
+http://www.hu5888.com
+http://www.hu4888.com
+http://www.dddmnm.com
+http://www.dd9599.com
+http://www.wuhai7.com
+http://www.wuhai9.com
+http://www.houma5.com
+http://www.houma9.com
+http://www.28321o.com
+http://www.28321s.com
+http://www.28321v.com
+http://www.28321x.com
+http://www.28321i.com
+http://www.28321a.com
+http://www.22mmyy.com
+http://www.22yynn.com
+http://www.150dev.com
